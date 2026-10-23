@@ -1,0 +1,1 @@
+# Analisis-GWAS-Bawang-Putih
